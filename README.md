@@ -1,1 +1,0 @@
-![Woah!](https://github.com/burdzwastaken/burdzwastaken/blob/master/screenshot-2.png)
